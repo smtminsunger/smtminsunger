@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a  lot  of  things
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- 😄 Pronouns: all ofthem
+- 😄 Pronouns: all of them
 - ⚡ Fun fact: i  have  a  bird
 
 <!---
